@@ -9,9 +9,10 @@
 ![image](https://github.com/kaillaryana/kaillaryana/assets/161544544/207fc051-9016-4b58-99fe-e0d88a497fe4)
 
 
+_______________________________________
 
-💫***Sinta-se à vontade para ver meu projetos mais recentes!***
 
-💫 ***Obrigado!***
+- ***Sinta-se à vontade para ver meu projetos mais recentes!***
+
 
 ![image](https://media1.tenor.com/m/jvsVBSMabc4AAAAC/rose-cat-give-give-rose-to-cat.gif)

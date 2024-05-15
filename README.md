@@ -10,4 +10,4 @@
 
 💫 ***Seja bem-vindo, sinta-se a vontade para ver meu projetos mais recentes!***
 
-![image](https://github.com/kaillaryana/kaillaryana/assets/161544544/0e18545f-b4c1-400b-a3bd-e9c3ea07e903)
+![image](https://media1.tenor.com/m/jvsVBSMabc4AAAAC/rose-cat-give-give-rose-to-cat.gif)
